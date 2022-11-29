@@ -1,4 +1,4 @@
-# A.Plus Tech
+# A. Plus Tech
 
 <img alt="" src=https://aplustech.com.np/assets/img/apluslogo.png width=200 align=right>
 
